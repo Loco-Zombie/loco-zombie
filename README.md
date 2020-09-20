@@ -6,4 +6,4 @@
 - 💬 Ask me about anything about Python & Java
 - 📫 How to reach me: Twitter - Loco.Zombie 
 - 😄 Pronouns: legend, lord, anonymous
-- ⚡ Fun fact: I am a black belt :)
+- ⚡ Fun fact: I am a black belt 2nd Dan :)
